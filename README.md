@@ -1,0 +1,2 @@
+# ayokerja
+ayokerja bersama kami
